@@ -1,0 +1,1 @@
+# tinh-phuong-trinh-bac-nhat
